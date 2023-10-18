@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @StarcraftPlayer IM YBG THE USERNAME WAS TAKEN SO IM STARCRAFT PLAYER
+- 👀 I’m interested in ... WHAT IS GITHUB
+- 🌱 I’m currently learning ... C PLUS PLUS
+- 💞️ I’m looking to collaborate on ... WHATS A REPOSITORY
+- 📫 How to reach me ... YOU REACH ME BY REACHING ME
