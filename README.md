@@ -2,4 +2,4 @@
 - 👀 I’m interested in ... WHAT IS GITHUB
 - 🌱 I’m currently learning ... C PLUS PLUS
 - 💞️ I’m looking to collaborate on ... WHATS A REPOSITORY
-- 📫 How to reach me ... YOU REACH ME BY REACHING ME
+- 📫 How to reach me ... MESSAGE ME ON DISCORD: @autisticfoxxo I CHECK MESSAGES EVERY 2 MONTHS
